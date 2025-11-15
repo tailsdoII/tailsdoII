@@ -1,6 +1,6 @@
 exe/exie, rosy/ames or genesis - 18 yo w a job
 
-artist poly sapphic she/it/one only
+bi fiaspec she/it/one only i do art for robux
 
 i can and will make u gift skins and u can do the same for me if u want to
 
